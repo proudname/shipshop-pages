@@ -1,4 +1,4 @@
-Privacy Policy for ShipShop
+## Privacy Policy for ShipShop
 
 English
 Privacy Policy
